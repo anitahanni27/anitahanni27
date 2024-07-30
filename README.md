@@ -11,7 +11,7 @@ Meu nome é Anita Vitoria
 
 00001136178028sp@al.educacao.sp.gov.br
 ![]()
-!(https://tenor.com/pt-BR/view/love-cute-rabbit-heart-wink-gif-17564040)
+![image](https://github.com/user-attachments/assets/bffd6b6c-5ca1-46cc-9532-791791ca7c1b)
 
 
 
